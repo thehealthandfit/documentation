@@ -14,11 +14,11 @@ One of the most ignored areas of a person�s personal care is their dental heal
 
 
 
-Where to buy prodentim: **Buy ProDentim from Official Website <a href="https://t.co/vimzG838oQ" target="_blank">prodentim.com</a>**
+Where to buy prodentim: **Buy ProDentim from Official Website
 
 
 
-<a href="https://t.co/vimzG838oQ" target="_blank"><img src="https://i.postimg.cc/nzbhbJbv/4c97127flmt.png" class="img-fluid" alt="Prodentim"></a>
+
 
 
 
@@ -30,7 +30,6 @@ This involves more than just brushing your teeth. It also includes oral health s
 
 
 
-<a href="https://t.co/vimzG838oQ" target="_blank"><img src="https://i.postimg.cc/WztZtVzh/PRODENTIM.png" class="img-fluid" alt="Prodentim"></a>
 
 
 
@@ -228,11 +227,8 @@ The ProDentim dietary supplement only makes use of healthy ingredients that are 
 
 
 
-For example, according to one <a href="https://t.co/vimzG838oQ" target="_blank">research,</a> a 1% Malic acid spray, which is a key component in the ProDentim formula, is shown to be helpful in dealing with a condition called xerostomia, which often can cause dry mouth and bad breath.
 
 
-
-On the other hand, <a href="https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3134041/" target="_blank">this research paper</a> also talks about having probiotic bacteria in your mouth can help you with gum disease and make your teeth healthier and stronger. The fact that ProDentim is a probiotic supplement really sets it apart from other oral health-related quality products.
 
 
 
@@ -282,7 +278,7 @@ ProDentim is only sold on their official website. Since the supplement has been 
 
 
 
-Outside of this official website, the product isn�t sold anywhere. They aren�t in retail stores yet or on any other online retail websites. Go to <a href="https://t.co/vimzG838oQ" target="_blank">prodentim.com</a> to buy ProDentim.
+
 
 
 
